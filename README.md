@@ -5,11 +5,10 @@
 
  („• ֊ •„)♡
  
-|￣U U￣￣￣￣￣￣￣￣￣|
-| hav a gud day!     |  
+|￣U U￣￣￣￣￣￣￣￣￣|     
 ￣￣￣￣￣￣￣￣￣￣￣￣
 ^_^ 
-Follow me if you want! 
+
 
 rom/eng. Learning de/kr!
 
