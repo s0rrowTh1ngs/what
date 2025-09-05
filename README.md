@@ -7,7 +7,7 @@
  
 |￣U U￣￣￣￣￣￣￣￣￣|     
 ￣￣￣￣￣￣￣￣￣￣￣￣
-^_^ 
+
 
 
 rom/eng. Learning de/kr!
